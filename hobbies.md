@@ -6,6 +6,8 @@
 
 ## Hobbies de verano
 * Dormir
+* Comer
+* Respirar
 
 Tengo 2 gatos
 
